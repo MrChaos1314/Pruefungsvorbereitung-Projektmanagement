@@ -19,5 +19,11 @@ Nach Abschluss der Prüfung besteht für mich kein weiterer Grund weiter daran z
 
 Hoffentlich hilft dies dem ein oder anderen bei der Prüfung oder in der Schule.
 
-
 Viel Erfolg!
+
+---
+
+### Fun Fact 
+Das Kursbuch hat für den inhaltich wichtigesten Part 37.895 Wörter.
+
+Diese Zusammenfassung hat ungefähr etwas mehr als 6200 Wörter.
